@@ -2,7 +2,7 @@
 https://www.womenspress.com/
 
 ## Contact
-- Sarah
+- Sarah sarah@womenspress.com
 - 
 
 ## Overview & Story
